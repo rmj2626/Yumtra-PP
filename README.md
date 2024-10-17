@@ -1,1 +1,1 @@
-"# Yumtra-PP" 
+Privacy Policy for Yumtra app.
